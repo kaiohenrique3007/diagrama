@@ -3,6 +3,5 @@
 Anderson amós da silva  01814150
 
 Kaio Henrique do nascimento souza 01807905
-
 Everton rodrigues laurindo da silva 01815700
 

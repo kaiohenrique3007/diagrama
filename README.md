@@ -7,3 +7,6 @@ Kaio Henrique do nascimento souza 01807905
 
 Everton rodrigues laurindo da silva 01815700
 
+João Victor dos Santos Saraiva 01816062
+
+Lucas Barbosa Almeida 01803535
